@@ -1,3 +1,3 @@
 # Portfolio
 
-As a software engineer, I worked as a freelancer.
+As a software engineer with over 8 years experience, I worked as a freelancer.
